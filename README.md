@@ -38,4 +38,4 @@ Este desafio foi proposto no Bootcamp Ri Happy desenvolvido pela DIGITAL INNOVAT
 
 ---
 
-Disponibilizado com ♥ por https://www.linkedin.co m/in/rosana-gouveiaa2340862/
+Disponibilizado com ♥ por https://www.linkedin.com/in/rosana-gouveiaa2340862/
